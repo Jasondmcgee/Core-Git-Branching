@@ -16,8 +16,13 @@ he moved slowly as he walked behind the zoo, he could see the trees and thick fl
 George had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
-Normally Henry would leave well enough alone, but he was worried that an animal might escape.
-He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
+Normally George would leave well enough alone, but he was worried that an animal might escape.
+He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper. 
+
+Zookeeper, "KID GET OUT THE UNICORN KING IS MINEEE"
+Kid, "PREPAIR TO MEET YOUR MAKER"
+they fight to the death for the unicorn kings favor.  
+
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
