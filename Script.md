@@ -21,7 +21,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Henry met the Unicorn King who granted him magic powers.
+Henry met the Unicorn King who granted him magic powers. He learned to fly, cast spells, and teleport to a fansty world with anime bitches. 
 The end.
 
 ## Cast
